@@ -8,3 +8,4 @@ Gostou do curso? Quer mais ? Ajuda com uma doação
 
 ok
 
+editação
